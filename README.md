@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate: on any GameJams
 - 📫 How to reach me: [https://teganjade.myportfolio.com/]
 - 😄 Pronouns: She/They
-- ⚡ Fun fact: I have 10 years experience as a barista
+- ⚡ Fun fact: Some of my all time favourite games are Mass Effect, The Last of Us, Control, Journey, Pokémon Black/White, and many more...
 
 <!---
 teganjade/teganjade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
